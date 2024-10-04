@@ -2,7 +2,7 @@
 - 👀 I’m interested in Physics and Coding
 - 🌱 I’m currently learning Bioinformatics and Digital Health
 - 💞️ I’m looking to collaborate on health projects
-- 📫 How to reach me : sergiobalboabarreiro@gmail.com or linkedin.com/in/sergiobalboa
+- 📫 How to reach me : via email (sergiobalboabarreiro@gmail.com) or in my LinkedIn profile (https://www.linkedin.com/in/sergiobalboa/).
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: proud cat owner
 
